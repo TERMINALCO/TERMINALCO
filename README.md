@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @TERMINALCO
 - 👀 I’m interested in crypto projects.
-- 🌱 I’m currently learning about how everthing works in this markets, but I have some experience here.
+- 🌱 I’m currently learning about how everthing works in this market, but I have some experience here.
 - 📫 How to reach me - Email - blenderniraj@gmail.com 
